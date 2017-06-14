@@ -1,0 +1,2 @@
+print "begobegobego"
+print "goblik"
