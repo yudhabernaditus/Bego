@@ -5,4 +5,11 @@ pintu depan......
 
 Apa yang anak itu cari ?
 
-
+Anak itu mencari apa,
+kita kesana dengan seorang anak
+anak yang tangkas
+dan juga pemberani-ii-ii-iiiiii
+bertarunglah cah bego
+dengan setengah mata nganthuksmu
+jika kau sampai tidur,
+koe engko dadi goblok.
